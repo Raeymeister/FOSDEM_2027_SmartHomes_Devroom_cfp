@@ -1,0 +1,1 @@
+# FOSDEM_2027_SmartHomes_Devroom_cfp
